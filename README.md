@@ -1,1 +1,1 @@
-# thundercore
+# thundercore is the best 
